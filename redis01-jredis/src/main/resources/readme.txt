@@ -1,2 +1,2 @@
 
-okok thanks
+okok thank you
